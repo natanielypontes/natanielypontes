@@ -1,3 +1,6 @@
- 👋 Hi, I’m naty 
- sou do brasil
+ ~~EU SOU NATY~~
+ _TENHO 14 ANOS_
+ >MIOJO DE GALINHA HMMM<3
+ # MUITO FODA LEK,VAMO DANÇA
+
  
